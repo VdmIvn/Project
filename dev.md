@@ -1,1 +1,1 @@
-Ku-Ku
+Ku-Kusiki blya!
